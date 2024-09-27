@@ -1,0 +1,2 @@
+# sipeka
+belajarekonomi
